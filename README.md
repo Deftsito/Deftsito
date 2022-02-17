@@ -12,7 +12,6 @@ Bienbenidos al perfil de 🦞 Diego Torres (Alias: Deftsito) 🦞
 - 📫 Gmail: diegoanto.torres.26@gmail.com
 - 😄 Edad: 16 años
 - ⚡ La vida en veces es mas UnU que UwU
--->
 
 |   Hora/Día  |     Lunes     |     Martes    |  Miércoles  |     Jueves    |   Viernes   |
 |:-----------:|:-------------:|:-------------:|:-----------:|:-------------:|:-----------:|
