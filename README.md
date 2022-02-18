@@ -24,4 +24,4 @@ Bienbenidos al perfil de 🦞 Diego Torres (Alias: Deftsito) 🦞
 | 12:00-12:50 |  Matemáticas  |     Inglés    | Comunidades |     Física    |      -      |
 | 12:55-13:45 |       -       |  Comunidades  | Comunidades |  Matemáticas  |      -      |
 
-![](3402d8a969fa14fb142224b9d9759b0a.jpg)
+![](cooltext404703642992723.gif)
